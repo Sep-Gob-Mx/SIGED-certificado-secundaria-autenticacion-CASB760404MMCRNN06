@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CASB760404MMCRNN06
+CASB760404MMCRNN06
